@@ -1,1 +1,1 @@
-# lab2
+# maou.github.io
